@@ -1,6 +1,8 @@
 # 03 - The Seed
 by Obinna D. Ugoeke, Snr
 
+   ![The Seed](1dedb8af-2ae3-d522-581c-61f163083b8c.jpeg)
+
 Nobody sees the seed when it is planted. That is why people mock it.
 
 They see you reading. They see you writing. They see you praying. They see you refusing the quick money, refusing the easy road, refusing to become what everybody else has become.
