@@ -1,6 +1,8 @@
 # 04 - The Act Didn't Change
 by Obinna D. Ugoeke, Snr
 
+   ![The Act Didn’t Change](468f016b-39e0-6fac-2601-1a564931a15b.jpeg)
+
 He did not change. The act did not change. Only the audience changed.
 
 That is what nobody wants to admit.
