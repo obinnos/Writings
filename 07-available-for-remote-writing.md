@@ -1,4 +1,4 @@
-![Open for Remote Writing](post-1-cover.jpg)
+![Open for Remote Writing](![Open for Remote Writing](IMG_6349.jpeg))
 
 # Available for Remote Writing and Editing Projects
 
