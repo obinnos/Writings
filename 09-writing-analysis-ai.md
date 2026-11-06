@@ -1,4 +1,4 @@
-# Writing. Analysis. AI. Three Dimensions. One Professional Direction.
+# Writing. Analysis. AI. Three Dimensions. One Professional Direction.![Man thinking alone by window](IMG_6350.jpeg)
 
 I am building a professional practice around a conviction: information becomes more valuable when it is examined critically, expressed clearly and judged intelligently.
 
