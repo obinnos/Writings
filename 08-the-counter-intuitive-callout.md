@@ -1,4 +1,4 @@
-# The Counter-Intuitive Callout
+# The Counter-Intuitive Callout![Thinking deeply with AI as partner](76493aeb-80fb-efc0-024e-3a1f103b1005.jpeg)
 
 The problem with much AI-generated content isn't simply that machines produce it.
 
