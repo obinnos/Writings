@@ -1,6 +1,8 @@
 # 06 - The Girl Who Became Everyone's Story
 by Obinna D. Ugoeke, Snr
 
+   ![The girl who became everyone’s story](154aa940-9c07-4dfc-ab9d-32ec2baaa8e6.jpeg)
+
 She never got to tell her own story. Everybody else told it for her.
 
 In the market, she was one story. In the church, she was another story. In her school, she was another story. On the internet, she was another story.
