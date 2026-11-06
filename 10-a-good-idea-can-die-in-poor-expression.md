@@ -1,4 +1,4 @@
-# A Good Idea Can Die in Poor Expression
+# A Good Idea Can Die in Poor Expression![Man thinking alone by window](IMG_6350.jpeg)
 
 An idea may be valuable and still fail to reach the people who need it.
 
