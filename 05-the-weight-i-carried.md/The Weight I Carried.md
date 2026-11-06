@@ -1,6 +1,8 @@
 # 05 - The Weight I Carried
 by Obinna D. Ugoeke, Snr
 
+   ![The weight I carried](e7a2c217-bd07-ed19-fe2d-d32a78a08d71.jpeg)
+
 Nobody asked me how heavy it was. They only asked why I was walking slow.
 
 That is how it is when you carry weight nobody can see.
